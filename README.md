@@ -8,7 +8,7 @@
 <br>
 
  #### <a href='https://kirov.hh.ru/applicant/resumes/view?resume=67e65fd0ff0c874d9b0039ed1f51446d71436e'>Ссылка на моё резюме на HH.ru</a> 
-## Обо мне 
+
 
 
 
